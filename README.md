@@ -25,7 +25,7 @@
 [![](https://visitcount.itsvg.in/api?id=Varun2871&icon=3&color=0)](https://visitcount.itsvg.in)
 
   ## 💰 You can help me by Donating
-  [![BuyMeACoffee](https://img.shields.io/badge/Buy%20Me%20a%20Coffee-ffdd00?style=for-the-badge&logo=buy-me-a-coffee&logoColor=black)](https://buymeacoffee.com/https://buymeacoffee.com/varunika__) 
+  [![BuyMeACoffee](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExdTUwdm5jNGI3Ym91MW51a2tvdXNpZ3Z2Y3NuNDB2ODFrNXJocGdqdyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/7kZE0z52Sd9zSESzDA/giphy.gif)
 
   
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
